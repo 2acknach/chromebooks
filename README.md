@@ -1,0 +1,2 @@
+# chromebooks
+chromebooks suck 
